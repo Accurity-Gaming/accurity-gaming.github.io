@@ -1,1 +1,1 @@
-# accurity-gaming.github.io
+# https://accurity-gaming.github.io
